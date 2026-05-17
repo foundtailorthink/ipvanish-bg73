@@ -1,10 +1,10 @@
-أفضل IPVanish تطبيق | دعم متعدد البروتوكولات + دعم OpenVPN هو أفضل IPVanish تطبيق مع دعم متعدد البروتوكولات و دعم OpenVPN. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/ipvanish-bg73/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
