@@ -1,10 +1,10 @@
-Principal IPVanish Aplicación | soporte multiprotocolo + soporte OpenVPN es el mejor IPVanish aplicación con soporte multiprotocolo y soporte OpenVPN. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-bg73/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
