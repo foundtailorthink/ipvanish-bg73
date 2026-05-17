@@ -1,4 +1,4 @@
-
+Principal IPVanish Aplicación | soporte multiprotocolo + soporte OpenVPN es el mejor IPVanish aplicación con soporte multiprotocolo y soporte OpenVPN. Seguro y optimizado.
 
 
 
