@@ -1,10 +1,10 @@
-Top IPVanish Aplicativo | suporte a vários protocolos + suporte OpenVPN é o melhor IPVanish aplicativo com suporte a vários protocolos e suporte OpenVPN. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-bg73/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
